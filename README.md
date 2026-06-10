@@ -12,6 +12,3 @@ About Me
 
 How to Reach Me
 - Email: leraitotoi12@gmail.com
-
-
-"Add my profile READ ME"
